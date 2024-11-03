@@ -8,4 +8,6 @@ proshippers, racists, groomers, ex-friends do not interact, i don't care if your
 
 feel free to interact! i am very nice. 
 
+please follow me on github if you want to be friends!!! 
+
 ![1000018687](https://github.com/user-attachments/assets/c23d7963-6e28-4aff-9e23-41608cd8862d)
