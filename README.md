@@ -6,7 +6,7 @@ feel free to cuddle / whisper me whenever. don't be scared.
 
 proshippers, racists, pedophiles (groomers), ex-friends, etc do not interact, i don't care if your nice. you will be put on a list for investigation purposes. /serious!
 
-pls don't be weird to me or my ocs. it has happened before. 
+pls don't be weird to me or my ocs. (unless your a close friend) it has happened before. 
 
 feel free to interact! i am very nice. 
 
