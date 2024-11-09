@@ -4,14 +4,10 @@ hello. i am alienyaoi.
 
 feel free to cuddle / whisper me whenever. don't be scared.
 
-proshippers, racists, pedophiles (groomers), ex-friends, hjtler d riders, lesboys, homophobics, etc do not interact, you guys are not real. i don't care if your nice. you will be put on a list for investigation purposes. /serious!
+proshippers, racists, pedophiles (groomers), ex-friends, hjtler d riders, lesboys, homophobics, etc do not interact, you guys are literal ai robots. i don't care if your nice. you will be put on a list for investigation purposes. /serious!
 
 pls don't be weird to me or my ocs. (unless your a close friend) it has happened before. 
 
-feel free to interact! i am very nice. i crown people sometimes!!
-
-please follow me on github if you want to be friends!!! 
-
-if you mess with my friends, your messing with me first. 
+feel free to interact! i am very nice. i crown people sometimes!! :) 
 
 ![1000018687](https://github.com/user-attachments/assets/c23d7963-6e28-4aff-9e23-41608cd8862d)
